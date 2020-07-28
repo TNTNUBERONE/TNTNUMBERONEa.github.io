@@ -1,2 +1,0 @@
-# TNTNUMBERONE.github.io
-сайты
